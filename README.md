@@ -1,28 +1,28 @@
-# Retour sur l’atelier « Enjeux marins, formations et carrières »  
-**Université d'Abomey-Calavi (UAC) – 13 juin 2025**
+# Recap of the Workshop “Marine Challenges, Education, and Careers”  
+**University of Abomey-Calavi (UAC) – June 13, 2025**
 
-À l’occasion de la Journée mondiale de l’Océan, la **CIPMA - CHAIRE UNESCO** et ses partenaires ont réuni étudiant·es, chercheur·es, professionnel·les du domaine maritime, alumni, entreprises et institutions autour d’un objectif commun : mieux connaître les océans, les protéger et en faire un levier de développement durable.
+On the occasion of World Ocean Day, the **CIPMA - UNESCO Chair** and its partners brought together students, researchers, maritime professionals, alumni, companies, and institutions around a shared goal: to better understand the oceans, protect them, and make them a lever for sustainable development.
 
-## Une journée riche en activités :
-- Projection d’un court-métrage issu du concours **ePOP**
-- Panel sur les enjeux marins, les formations et les opportunités de carrière 
-- Présentation du **Master 2 Océanographie et Applications UAC/ UT** 
-- Exposition interactive : « Océan et climat, des échanges pour la vie » (proposée par l’IRD)
-- Sessions de réseautage et d’échanges
+## A day full of activities:  
+- Screening of a short film from the **ePOP** competition  
+- Panel on marine challenges, education, and career opportunities  
+- Presentation of the **Master 2 Oceanography and Applications UAC/ UT**  
+- Interactive exhibition: “Ocean and Climate, exchanges for life” (offered by IRD)  
+- Networking and discussion sessions
 
-Le panel a particulièrement mis en valeur les parcours inspirants de nos alumni, les besoins du secteur maritime et les perspectives professionnelles pour les jeunes engagé·es dans la protection de l’environnement océanique.
+The panel especially highlighted the inspiring journeys of our alumni, the needs of the maritime sector, and professional prospects for young people committed to protecting the ocean environment.
 
-## Revivez l'intégralité des temps forts de cette journée en vidéo :  
-👉 [Lien vers la vidéo](https://lnkd.in/e6DXpD5T)
+## Watch the full highlights of this day in video:  
+👉 [Video link](https://lnkd.in/e6DXpD5T)
 
 ---
 
-## Merci à nos partenaires et soutiens :  
-l’IRD, l’**irhob Bénin**, **CMA CGM Bénin**, la Préfecture maritime du Bénin, **PRODATA SARL**, la Fédération des pêcheurs marins, artisans et assimilés du Bénin (**FEPEMAA**), ainsi que tous les alumni et participant·es mobilisé·es.
+## Thanks to our partners and supporters:  
+IRD, **irhob Benin**, **CMA CGM Benin**, the Maritime Prefecture of Benin, **PRODATA SARL**, the Federation of Marine Fishermen, Artisans and Associates of Benin (**FEPEMAA**), as well as all alumni and participants involved.
 
-Ensemble, continuons à faire vivre les sciences marines au Bénin et au-delà.
+Together, let’s continue to promote marine sciences in Benin and beyond.
 
 ---
 
 ### Hashtags  
-#JournéeMondialeDelOcéan #CIPMA #Océanographie #Formations #Carrières #Environnement #SciencesMarines #UAC #IRD #ePOP #Bénin #DéveloppementDurable
+#WorldOceanDay #CIPMA #Oceanography #Education #Careers #Environment #MarineSciences #UAC #IRD #ePOP #Benin #SustainableDevelopment
